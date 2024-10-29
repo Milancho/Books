@@ -8,3 +8,5 @@
 7. Atomic Habits
 8. The Compound Effect
 9. The Hard Thing About Hard Things
+10. Atomic Habits: An Easy & Proven Way to Build Good Habits & Break Bad Ones
+    - https://www.amazon.com/Atomic-Habits-Proven-Build-Break/dp/0735211299
